@@ -1,2 +1,0 @@
-Lucas Kajander
-2516277
